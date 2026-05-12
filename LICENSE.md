@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced okx trading bot Module | isolated-margin + take-profit, the #1 okx trading bot. Includes isolated-margin and take-profit for a smoother and more
 
 
 
